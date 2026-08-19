@@ -1,4 +1,4 @@
-Thanks for downloading this template!
+CAMBIOS DE ULTIMO MOMENTO
 
 Template Name: Creativo
 Template URL: https://bootstrapmade.com/creativo-bootstrap-creative-agency-template/
