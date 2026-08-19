@@ -1,4 +1,4 @@
-CAMBIOS DE ULTIMO MOMENTO
+Richard Huanca Loza
 
 Template Name: Creativo
 Template URL: https://bootstrapmade.com/creativo-bootstrap-creative-agency-template/
